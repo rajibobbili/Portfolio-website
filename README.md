@@ -6,7 +6,7 @@ Visual Representation of Skills:
 Emphasize how the website provides a visual representation of your abilities, demonstrating your skills in action, says Tiiny.host. 
 Practical Experience and Projects:
 Clearly state that the website showcases practical experience and projects, offering concrete examples of your work, according to Tiiny.host. 
-Increased Engagement:
+Increased Engagement:s
 Mention how the website, especially with interactive elements, can enhance the recruiter's engagement with your application, notes Tiiny.host. 
 Relevant Skills and Projects:
 Highlight the skills and projects most relevant to the specific job or industry you're targeting, Quora. 
